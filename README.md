@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any project that is beginner friendly that will help me gain expereince prior to school!
 - 📫 How to reach me is my email is garland.brigham@gmail.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: I am a member of Omega Psi Phi Fraternity Incorporated. 
+
 
 <!---
 Ocala352/Ocala352 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
